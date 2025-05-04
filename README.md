@@ -1,1 +1,1 @@
-privacy is not for passive
+privacy is not for passive -bhatti muhammadadil
